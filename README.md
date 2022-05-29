@@ -1,4 +1,4 @@
-# gamification
+# Gamification
 
 The following cartoons reflect the demonstration of Gamification phase
 

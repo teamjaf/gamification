@@ -32,3 +32,15 @@ The following cartoons reflect the demonstration of Gamification phase
 ![Screenshot 2022-05-29 172719](https://user-images.githubusercontent.com/65031312/170873460-e9806227-391d-4675-bdc3-982bdcffe1ff.jpg)
 
 ![Screenshot 2022-05-29 172620](https://user-images.githubusercontent.com/65031312/170873466-8a827dfe-fbf1-4f63-9326-cb213d85d487.jpg)
+
+
+## Story - 05
+
+![282527834_573208237697973_3047293473136137009_n](https://user-images.githubusercontent.com/65031312/170877911-b166fdb6-a181-412f-afdb-2e80eb6a7f75.jpg)
+
+![283348352_1242834556123587_3649954511011092858_n](https://user-images.githubusercontent.com/65031312/170877922-cd1684be-37f8-4163-9a20-557e4074030d.jpg)
+
+
+
+
+
